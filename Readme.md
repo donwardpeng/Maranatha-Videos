@@ -1,6 +1,6 @@
 ## Links to Video Recordings
 
-- [July 31, 2020 - Spring Membership Meeting](https://us02web.zoom.us/rec/share/6NZqJp_78VFJUrPpzhvRVLIBQJjKX6a8gSgb_vsEzR0ouB0i86-Agw2jxdIh9OKI?startTime=1596148871000)
+- [July 30, 2020 - Spring Membership Meeting](https://us02web.zoom.us/rec/share/6NZqJp_78VFJUrPpzhvRVLIBQJjKX6a8gSgb_vsEzR0ouB0i86-Agw2jxdIh9OKI?startTime=1596148871000)
 - [July 8, 2020 - Town Hall #4 Video](https://drive.google.com/file/d/1BLFkxdz8Uob0HRKTvuTGWM8YBnGBEGj0/view?usp=sharing)
 - [June 15, 2020 - End of Year Video Recap](https://www.youtube.com/watch?v=wumdLlr8d84&feature=youtu.be&fbclid=IwAR3OB7qpkQxDEIyWu462Ef9Kr8MqIHyGbxTrjrBt4-RZ4ZrJ24Hw8YobxDY)
 - [June 15, 2020 - Chapel](https://drive.google.com/file/d/1n0i8oOM_uBqaeUwke_IB495-Ywr8cyP3/view?usp=sharing)
