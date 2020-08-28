@@ -1,5 +1,6 @@
 ## Links to Video Recordings
 
+- [August 27, 2020 - Back to School Meeting](https://us02web.zoom.us/rec/share/5dZyaLCoyHlIY42T4UvCcZV4ObjUeaa8hnAb__sNzBszhntTpKvPQTbcR98CNNbf?startTime=1598567796000)
 - [July 30, 2020 - Spring Membership Meeting](https://drive.google.com/file/d/1aW4PzElJcqXxhk9JLxeGTZP6ONE2ATup/view?usp=sharing)
 - [July 8, 2020 - Town Hall #4 Video](https://drive.google.com/file/d/1BLFkxdz8Uob0HRKTvuTGWM8YBnGBEGj0/view?usp=sharing)
 - [June 15, 2020 - End of Year Video Recap](https://www.youtube.com/watch?v=wumdLlr8d84&feature=youtu.be&fbclid=IwAR3OB7qpkQxDEIyWu462Ef9Kr8MqIHyGbxTrjrBt4-RZ4ZrJ24Hw8YobxDY)
